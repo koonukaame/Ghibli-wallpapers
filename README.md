@@ -1,3 +1,3 @@
 # Ghibli-wallpapers
 
-Possible bad quality is an artistic choice
+Possible bad quality is an artistic choice.
